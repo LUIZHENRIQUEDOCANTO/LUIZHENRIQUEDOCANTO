@@ -10,5 +10,8 @@ Uma frase dita pelo XMEN
 As vezes o Feltrin é agressível... Aquele diabão
 
 
+!{}(https://media.tenor.com/FLATLaVi3KYAAAAd/lol-jokes.gif)
+
+
 
 
