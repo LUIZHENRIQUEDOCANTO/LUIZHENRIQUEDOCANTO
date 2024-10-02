@@ -9,6 +9,7 @@ Uma frase dita pelo XMEN
 
 As vezes o Feltrin é agressível... Aquele diabão
 
+Nathan é o cuzão supremo
 
 !{}(https://media.tenor.com/FLATLaVi3KYAAAAd/lol-jokes.gif)
 
